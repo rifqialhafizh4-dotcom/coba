@@ -1,2 +1,2 @@
-# aku sangat rindu rumah
+# aku sangat rindu rumah sekarang
 baris ini ditambahkan menggunakan pull
